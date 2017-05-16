@@ -10,6 +10,6 @@ the moon and you
 
 The sun for the day
 
-the moon for the night,
+the moon for the night
  
 and you for ever
